@@ -30,17 +30,29 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 * 环球巴士官网地址：<a href="https://universalbus.cn/?s=ofZoHZpnhr">https://universalbus.cn/?s=ofZoHZpnhr</a>
 
+![中国使用支付宝为ChatGPT充值步骤一：打开环球巴士官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-1.jpg)
+
 ### 第二步：使用手机号码登录并注册。
+
+![中国使用支付宝为ChatGPT Plus充值步骤二：使用手机号码登录并注册](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-2.jpg)
 
 ### 第三步：返回首页，并分别点击“充值”按钮和“AIGC”按钮。
 
+![中国使用支付宝为ChatGPT-4充值步骤三：返回首页，并分别点击“充值”按钮和“AIGC”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-3.jpg)
+
 ### 第四步：分别点击“购票上车”按钮和“立即购买按钮”。
+
+![国内使用支付宝为ChatGPT充值步骤四：分别点击“购票上车”按钮和“立即购买按钮”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-4.jpg)
 
 ### 第五步：输入优惠码“ANYOFAI”并点击“支付宝支付”按钮。
 
-注意：输入我们独家优惠码“ANYOFAI”可享九折优惠！
+注意：输入我们独家优惠码“**ANYOFAI**”可享九折优惠！
+
+![国内使用支付宝为ChatGPT Plus充值步骤五：输入优惠码“ANYOFAI”并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-5.jpg)
 
 ### 第六步：使用支付宝扫码完成支付。
+
+![国内使用支付宝为ChatGPT-4充值步骤六：使用支付宝扫码完成支付](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge-6.jpg)
 
 小结：环球巴士的所有充值服务均由人工手动操作，通常在48小时内完成激活。平台提供全年无休的在线客服支持，工作时间为每日09:00-24:00，用户如有任何疑问，可随时联系在线客服。此外，环球巴士向用户承诺安全保障，若遇到任何问题，平台将提供“翻车必赔”的赔付服务，确保用户权益。
 
