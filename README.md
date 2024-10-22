@@ -2,7 +2,7 @@
 
 <p align="center">最近更新于：2024年10月22日</p>
 
-![中国ChatGPT充值攻略：国内如何使用支付宝为ChatGPT Plus充值，最可靠的ChatGPT Plus代充值平台推荐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
+![中国ChatGPT充值攻略：国内如何使用支付宝为ChatGPT Plus充值，最可靠的ChatGPT-4代充值平台推荐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
 ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入到了我们的工作、学习和生活中，成为处理日常任务、创作内容，甚至解决复杂问题的得力助手。然而，ChatGPT-3.5版本的功能相对基础，在处理复杂指令和多任务需求时，可能无法满足用户对高效体验的期望。因此，越来越多的用户希望升级到ChatGPT Plus版本，享受更强大的功能、更快的响应速度和更丰富的操作体验。
 
