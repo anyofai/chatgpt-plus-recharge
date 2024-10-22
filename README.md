@@ -4,7 +4,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 <blockquote>
 
-截至到目前为止（2024年10月22日），ChatGPT Plus充值的方式主要有两种：
+截至到目前为止（2024年10月22日），国内ChatGPT Plus充值的方式主要有两种：
 
 * **一、使用WildCard虚拟信用卡充值ChatGPT Plus帐号（推荐）**：众所周知，国内信用卡（包括香港信用卡）无法直接支付ChatGPT Plus的订阅费用。因此，对于没有国外信用卡的用户来说，使用WildCard虚拟信用卡是目前最佳的选择。使用WildCard虚拟信用卡为ChatGPT Plus充值后，你可以获得一个专属的ChatGPT Plus帐号。同时，在充值过程中也不会遇到支付被拒或帐号被封等问题。此外，这种方法操作简单、方便，非常适合绝大多数的普通用户。更多详情请查看：<a href=https://github.com/anyofai/anyofai.github.io>国内支付宝开通ChatGPT Plus教程</a>。
 
