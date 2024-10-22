@@ -18,7 +18,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 接下来，我们将为大家推荐几个行业内较为可靠的ChatGPT Plus代充值平台，这些平台都是由专业公司运营，并且在当地经过合法备案，信誉有保障。
 
-## 国内ChatGPT Plus代充值平台首选：环球巴士
+## 国内ChatGPT Plus代充值平台首选：<a href=https://universalbus.cn/?s=ofZoHZpnhr>环球巴士</a>
 
 环球巴士成立于2019年7月，隶属于杭州十全信息科技有限公司，专注于提供会员账号合租和代充值服务。该平台的服务种类丰富，涵盖影视、音乐、游戏和办公等多个领域，能够满足不同用户的需求。具体来说，环球巴士为用户提供Netflix、Spotify、Disney+、YouTube、Apple One等流媒体账号合租服务，还提供ChatGPT、Midjourney、Notion等热门AI工具的代充值服务。
 
@@ -28,7 +28,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 ### 第一步：打开环球巴士官网，并点击右上角的小头像。
 
-* 环球巴士官网地址：https://universalbus.cn/?s=ofZoHZpnhr
+* 环球巴士官网地址：<a href=https://universalbus.cn/?s=ofZoHZpnhr>https://universalbus.cn/?s=ofZoHZpnhr</a>
 
 ### 第二步：使用手机号码登录并注册。
 
