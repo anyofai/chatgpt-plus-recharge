@@ -28,7 +28,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 ### 第一步：打开环球巴士官网，并点击右上角的小头像。
 
-* 环球巴士官网地址：<a href=https://universalbus.cn/?s=ofZoHZpnhr>https://universalbus.cn/?s=ofZoHZpnhr</a>
+* 环球巴士官网地址：<a href="https://universalbus.cn/?s=ofZoHZpnhr">https://universalbus.cn/?s=ofZoHZpnhr</a>
 
 ### 第二步：使用手机号码登录并注册。
 
@@ -60,7 +60,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 然而，如果你在非工作日或非工作时间段提交充值请求，客服人员较少，处理时间可能会有所延长。因此，建议在充值前先咨询在线客服，了解具体的处理时长，以避免不必要的等待。
 
-此外，如果你选择使用Wildcard虚拟信用卡自行充值ChatGPT Plus，整个流程大约只需15分钟，相对更快速便捷，适合希望立即完成充值的用户。具体操作步骤请查看：支付宝订阅ChatGPT Plus教程。
+此外，如果你选择使用Wildcard虚拟信用卡自行充值ChatGPT Plus，整个流程大约只需15分钟，相对更快速便捷，适合希望立即完成充值的用户。具体操作步骤请查看：<a href=https://github.com/anyofai/anyofai.github.io>支付宝订阅ChatGPT Plus教程</a>。
 
 ## 中国ChatGPT-4代充值优点有哪些？
 
