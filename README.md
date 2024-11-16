@@ -42,7 +42,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 ### 第四步：选择“时长”并点击“支付订单”。
 
-注意：使用我们独家优惠码“**ANUOFAI**”可享九折优惠！
+注意：使用我们独家优惠码“**ANYOFAI**”可享九折优惠！
 
 ![国内使用支付宝为ChatGPT充值步骤四：选择“时长”并点击“支付订单”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--4.jpg)
 
