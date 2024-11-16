@@ -22,13 +22,13 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 接下来，我们将为大家推荐一个行业内较为可靠的ChatGPT Plus代充值平台，这些平台都是由专业公司运营，并且在当地经过合法备案，信誉有保障。
 
-## 国内ChatGPT Plus代充值平台首选：<a href="https://naifeistation.com?invite=3235">星际放映厅</a>
+## 国内ChatGPT Plus代充值平台首选：<a href="https://www.naifeistation.com?invite=3235">星际放映厅</a>
 
 星际放映厅是一家专注于为用户提供会员账号合租和代充值服务的平台，该平台的服务种类非常丰富，涵盖了Netflix、Spotify、Disney+、HBO GO、YouTube、Prime Video等海外流媒体账号的合租服务，同时还提供ChatGPT、Poe、Claude、Midjourney等AI工具账号的合租和代充值服务。此外，星际放映厅已在国内完成备案，备案号为浙ICP备2023017856号，确保了平台运营的合法性和安全性。
 
 ### 第一步：打开星际放映厅官网，并点击右上角的小头像。
 
-* 星际放映厅官网地址：<a href="https://naifeistation.com?invite=3235">https://naifeistation.com?invite=3235</a>
+* 星际放映厅官网地址：<a href="https://www.naifeistation.com?invite=3235">https://www.naifeistation.com?invite=3235</a>
 
 ![中国使用支付宝为ChatGPT充值步骤一：打开星际放映厅官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--1.jpg)
 
@@ -60,7 +60,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 ## 国内ChatGPT代充值安全吗？
 
-由于ChatGPT Plus代充值需要提供用户的ChatGPT账号和密码，代充值服务商通过用户的账号完成充值操作。因此，ChatGPT代充值的安全性在很大程度上取决于所选择的平台。建议用户在选择ChatGPT代充值服务时，优先考虑经过验证的服务商（比如：<a href="https://naifeistation.com?invite=3235">星际放映厅</a>），并在充值完成后立即修改密码，以最大限度保障账号安全。
+由于ChatGPT Plus代充值需要提供用户的ChatGPT账号和密码，代充值服务商通过用户的账号完成充值操作。因此，ChatGPT代充值的安全性在很大程度上取决于所选择的平台。建议用户在选择ChatGPT代充值服务时，优先考虑经过验证的服务商（比如：<a href="https://www.naifeistation.com?invite=3235">星际放映厅</a>），并在充值完成后立即修改密码，以最大限度保障账号安全。
 
 ## 国内ChatGPT-4代充值需要多久？
 
@@ -171,5 +171,7 @@ ChatGPT-4代充值服务是最便捷的选择，用户几乎不需要参与操�
 * <a href=https://github.com/anyofai/claude-pro>国内购买Claude Pro教程</a>：本文将重点介绍如何在国内注册Claude帐号，以及如何使用支付宝充值订阅Claude Pro会员。同时，还会解答大家比较关注的Claude Pro帐号共享、Claude Pro帐号合租和Claude Pro代充值等问题。本教程亲测真实有效，而且升级订阅Claude Pro的整个流程也仅需十多分钟！
 
 * <a href=https://github.com/anyofai/chatgpt-plus-hezu>购买ChatGPT Plus合租帐号教程</a>：如果你无法解决科学上网的问题，或觉得每月20美元的会员费用过高，可以考虑购买ChatGPT Plus合租帐号。这种方式不仅能够降低使用成本，还免去了科学上网的复杂操作。
+
+* <a href="https://github.com/anyofai/poe">国内充值购买Poe帐号教程</a>：本文将手把手地教大家如何快速获取一张WildCard虚拟信用卡，并使用该卡为Poe充值。而且，本Poe订阅教程经过亲测，真实有效且安全可靠，整个Poe购买流程最快仅需十五分钟即可完成。
 
 * <a href=https://github.com/anyofai/chatgpt>国内ChatGPT注册教程</a>：本文将手把手教你如何在中国大陆完成ChatGPT帐号注册和ChatGPT Plus会员升级。整个过程简单明了，而且无需手机验证，只需五分钟即可完成所有操作。
