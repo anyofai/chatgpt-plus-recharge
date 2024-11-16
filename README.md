@@ -152,7 +152,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 * 1，WildCard虚拟信用卡
 
-使用WildCard虚拟信用卡为ChatGPT Plus充值是目前最常见的方式，适合绝大多数普通用户。该方式操作简单、安全性高，整个充值流程约需15分钟。WildCard虚拟信用卡的费用相对较低，且操作过程中无需担心信息泄露问题，非常适合长期使用ChatGPT Plus的用户。点击查看更多：<a href=https://github.com/anyofai/anyofai.github.io>支付宝升级ChatGPT Plus教程</a>
+使用WildCard虚拟信用卡为ChatGPT Plus充值是目前最常见的方式，适合绝大多数普通用户。该方式操作简单、安全性高，整个充值流程约需15分钟。WildCard虚拟信用卡的费用相对较低，且操作过程中无需担心信息泄露问题，非常适合长期使用ChatGPT Plus的用户。点击查看更多：<a href=https://github.com/anyofai/anyofai.github.io>支付宝开通ChatGPT Plus教程</a>
 
 * 2，Apple礼品卡
 
