@@ -70,7 +70,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 然而，如果你在非工作日或非工作时间段提交充值请求，客服人员较少，处理时间可能会有所延长。因此，建议在充值前先咨询在线客服，了解具体的处理时长，以避免不必要的等待。
 
-此外，如果你选择使用Wildcard虚拟信用卡自行充值ChatGPT Plus，整个流程大约只需15分钟，相对更快速便捷，适合希望立即完成充值的用户。具体操作步骤请查看：<a href=https://github.com/anyofai/anyofai.github.io>支付宝订阅ChatGPT Plus教程</a>。
+此外，如果你选择使用Wildcard虚拟信用卡自行充值ChatGPT Plus，整个流程大约只需15分钟，相对更快速便捷，适合希望立即完成充值的用户。具体操作步骤请查看：<a href=https://github.com/anyofai/anyofai.github.io>支付宝购买ChatGPT Plus教程</a>。
 
 ## 中国ChatGPT-4代充值优点有哪些？
 
