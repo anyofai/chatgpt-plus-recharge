@@ -26,33 +26,33 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 * 星际放映厅官网地址：<a href="https://www.naifeistation.com?invite=3235">https://www.naifeistation.com?invite=3235</a>
 
-![中国使用支付宝为ChatGPT充值步骤一：打开星际放映厅官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--1.jpg)
+![ChatGPT Plus代充值步骤一：打开星际放映厅官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--1.jpg)
 
 ### 第二步：使用手机号码完成登录。
 
-![中国使用支付宝为ChatGPT Plus充值步骤二：使用手机号码完成登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--2.jpg)
+![ChatGPT Plus代充值步骤二：使用手机号码完成登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--2.jpg)
 
 ### 第三步：点击“AI工具箱”并选择“ChatGPT Plus代充”。
 
-![中国使用支付宝为ChatGPT-4充值步骤三：点击“AI工具箱”并选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--3.jpg)
+![ChatGPT Plus代充值步骤三：点击“AI工具箱”并选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--3.jpg)
 
 ### 第四步：选择“时长”并点击“支付订单”。
 
 注意：使用我们独家优惠码“**ANYOFAI**”可享九折优惠！
 
-![国内使用支付宝为ChatGPT充值步骤四：选择“时长”并点击“支付订单”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--4.jpg)
+![ChatGPT Plus代充值步骤四：选择“时长”并点击“支付订单”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--4.jpg)
 
 ### 第五步：使用支付宝扫码完成支付。
 
-![国内使用支付宝为ChatGPT Plus充值步骤五：使用支付宝扫码完成支付](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--5.jpg)
+![ChatGPT Plus代充值步骤五：使用支付宝扫码完成支付](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--5.jpg)
 
 ### 第六步：输入你的ChatGPT帐号和密码，并点击“提交信息”。
 
-![国内使用支付宝为ChatGPT-4充值步骤六：输入你的ChatGPT帐号和密码，并点击“提交信息”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--6.jpg)
+![ChatGPT Plus代充值步骤六：输入你的ChatGPT帐号和密码，并点击“提交信息”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--6.jpg)
 
 ### 第七步：查收来自星际放映厅的激活短信。
 
-![国内使用支付宝为ChatGPT-4充值步骤六：查收来自星际放映厅的激活短信](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--7.jpg)
+![ChatGPT Plus代充值步骤七：查收来自星际放映厅的激活短信](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--7.jpg)
 
 注意：星际放映厅通常会在3小时内帮助用户完成ChatGPT Plus开通。此外，星际放映厅的在线客服全年无休，工作时间为每日09:00-24:00，用户可以随时联系在线客服，解决任何疑问。
 
