@@ -18,13 +18,13 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 接下来，我们将为大家推荐一个行业内较为安全可靠的ChatGPT Plus代充值平台，该平台都是由专业公司运营，并且在当地经过合法备案，信誉有保障。
 
-## 国内ChatGPT Plus代充值平台首选：<a href="https://www.naifeistation.com?invite=3235">星际放映厅</a>
+## 国内ChatGPT Plus代充值平台首选：<a href="https://www.naifeistation.com?invite=3wLPME">星际放映厅</a>
 
 星际放映厅是一家专注于为用户提供会员账号合租和代充值服务的平台，该平台的服务种类非常丰富，涵盖了Netflix、Spotify、Disney+、HBO GO、YouTube、Prime Video等海外流媒体账号的合租服务，同时还提供ChatGPT、Poe、Claude、Midjourney等AI工具账号的合租和代充值服务。此外，星际放映厅已在国内完成备案，备案号为浙ICP备2023017856号，确保了平台运营的合法性和安全性。
 
 ### 第一步：打开星际放映厅官网，并点击右上角的小头像。
 
-* 星际放映厅官网地址：<a href="https://www.naifeistation.com?invite=3235">https://www.naifeistation.com?invite=3235</a>
+* 星际放映厅官网地址：<a href="https://www.naifeistation.com?invite=3wLPME">https://www.naifeistation.com?invite=3wLPME</a>
 
 ![ChatGPT Plus代充值步骤一：打开星际放映厅官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--1.jpg)
 
@@ -58,7 +58,7 @@ ChatGPT作为最近这两年最受欢迎的AI工具之一，已经逐渐融入�
 
 ## 国内ChatGPT代充值安全吗？
 
-由于ChatGPT Plus代充值需要提供用户的ChatGPT账号和密码，代充值服务商通过用户的账号完成充值操作。因此，ChatGPT代充值的安全性在很大程度上取决于所选择的平台。建议用户在选择ChatGPT代充值服务时，优先考虑经过验证的服务商（比如：<a href="https://www.naifeistation.com?invite=3235">星际放映厅</a>），并在充值完成后立即修改密码，以最大限度保障账号安全。
+由于ChatGPT Plus代充值需要提供用户的ChatGPT账号和密码，代充值服务商通过用户的账号完成充值操作。因此，ChatGPT代充值的安全性在很大程度上取决于所选择的平台。建议用户在选择ChatGPT代充值服务时，优先考虑经过验证的服务商（比如：<a href="https://www.naifeistation.com?invite=3wLPME">星际放映厅</a>），并在充值完成后立即修改密码，以最大限度保障账号安全。
 
 ## 国内ChatGPT-4代充值需要多久？
 
