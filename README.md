@@ -1,4 +1,4 @@
-# ChatGPT Plus代充值：ChatGPT代充安全吗？安全稳定的ChatGPT 4代充值平台推荐！
+# ChatGPT Plus代充值：ChatGPT代充安全吗？安全稳定的ChatGPT 4代充值平台推荐！（含ChatGPT Pro代充值）
 
 <p align="center">最近更新于：2025年1月3日</p>
 
