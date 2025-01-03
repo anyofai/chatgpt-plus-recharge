@@ -34,6 +34,8 @@ ChatGPT Plus代充值服务的安全性，关键在于平台的正规性和可�
 
 ## 国内ChatGPT Plus代充值平台首选：<a href="https://www.naifeistation.com?invite=3wLPME">星际放映厅</a>
 
+注意：除了提供ChatGPT Plus代充值服务之外，星际放映厅还提供Claude Pro代充值和ChatGPT Pro代充值等服务。
+
 ### 第一步：打开星际放映厅官网，并点击右上角的小头像。
 
 * 星际放映厅官网地址：<a href="https://www.naifeistation.com?invite=3wLPME">https://www.naifeistation.com?invite=3wLPME</a>
