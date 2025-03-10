@@ -1,6 +1,6 @@
 # ChatGPT Plus代充值：ChatGPT代充安全吗？安全稳定的ChatGPT 4代充值平台推荐！（含ChatGPT Pro代充值）
 
-<p align="center">最近更新于：2025年3月1日</p>
+<p align="center">最近更新于：2025年3月10日</p>
 
 ![ChatGPT Plus代充值：ChatGPT代充安全吗？安全稳定的ChatGPT 4代充值平台推荐！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
@@ -233,6 +233,8 @@ ChatGPT Plus代充值服务并不适合长期订阅用户，尤其是那些每�
 * <a href="https://github.com/anyofai/poe">Poe订阅</a>：本文将手把手地教大家如何快速获取一张野卡虚拟信用卡，并使用该卡为Poe充值。而且，本Poe订阅教程经过亲测，真实有效且安全可靠，整个Poe购买流程最快仅需十五分钟即可完成。
 
 * <a href="https://github.com/anyofai/onlyfans">OnlyFans订阅</a>：Onlyfans怎样玩？中国人怎么用OnlyFans？Onlyfans官网是哪个？如何注册Onlyfans帐号？国内如何订阅Onlyfans呢？接下来本文将为你详细解答这些问题。
+
+* <a href="https://github.com/anyofai/x-twitter">Twitter X Premium订阅</a>：国内用户如何通过订阅X Premium、Premium+或SuperGrok等方式来使用Grok 3？以及国内如何白嫖Grok API每月150美元的免费额度？
 
 * <a href="https://github.com/anyofai/chatgpt">ChatGPT注册</a>：本文将手把手教你如何在中国大陆完成ChatGPT帐号注册和ChatGPT Plus会员升级。整个过程简单明了，而且无需手机验证，只需五分钟即可完成所有操作。
 
