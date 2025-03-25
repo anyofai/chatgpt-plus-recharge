@@ -12,7 +12,7 @@ ChatGPT Plus代充值为国内没有海外信用卡的用户提供了一个快�
 
 <blockquote>
 
-注意：如果你在工作和生活中需要长期使用ChatGPT Plus账号，或者对隐私安全有较高要求，那么我们不建议使用ChatGPT Plus代充值服务。因为ChatGPT代续费需要你将ChatGPT账号和密码共享给服务方，那么你的ChatGPT Plus使用记录可能会被不良的GPT4o代充值服务商窃取。此外，GPT4代充还需支付一定的手续费，对于长期使用ChatGPT Plus的用户来说并不划算。因此，对于大多数普通用户而言，ChatGPT代充并不是获取ChatGPT Plus账号的最佳方式。我们更推荐大家自己使用<a href="https://yeka.ai/i/ANYOFAI">野卡YEKA虚拟信用卡</a>订阅ChatGPT Plus会员，这种方式不仅安全有保障，价格也更便宜！更多详情请查看：<a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus开通教程</a>！
+注意：如果你在工作和生活中需要长期使用ChatGPT Plus账号，或者对隐私安全有较高要求，那么我们不建议使用ChatGPT Plus代充值服务。因为ChatGPT代续费需要你将ChatGPT账号和密码共享给服务方，那么你的ChatGPT Plus使用记录可能会被不良的GPT4o代充值服务商窃取。此外，GPT4代充还需支付一定的手续费，对于长期使用ChatGPT Plus的用户来说并不划算。因此，对于大多数普通用户而言，ChatGPT代充并不是获取ChatGPT Plus账号的最佳方式。我们更推荐大家自己使用<a href="https://yeka.ai/i/ANYOFAI">WildCard野卡虚拟信用卡</a>订阅ChatGPT Plus会员，这种方式不仅安全有保障，价格也更便宜！更多详情请查看：<a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus开通教程</a>！
 
 </blockquote>
 
