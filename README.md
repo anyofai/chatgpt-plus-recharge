@@ -58,6 +58,8 @@
 
 如果大家在通过银河录像局进行ChatGPT Plus代充值时遇到问题，或者有不清楚的地方，可以第一时间联系银河录像局的在线客服进行咨询，也可以添加我们的VX（VX号：ANYOFAI）进行咨询。
 
+****
+
 ## 2025年国内ChatGPT Plus代充值平台备选：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅</a>
 
 星际放映厅也是一家专注于流媒体与AI账号合租的平台，该平台也已获得正规ICP备案（浙ICP备2023017856号），并由专业团队运营，可以为用户提供安全可靠的流媒体和AI工具合租服务。星际放映厅虽然主打Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，但同时也提供ChatGPT Plus合租、ChatGPT Plus代充值、SuperGrok合租、SuperGrok代充值、Midjourney合租、Midjourney代充值、Poe代充值等服务。也就是说，无论你是想追剧、看美剧、听音乐，还是需要AI写作与绘画，用户都能在这里找到合适的方案。
@@ -98,6 +100,10 @@
 
 注意：星际放映厅通常会在3小时内帮助用户完成ChatGPT Plus代充值。此外，星际放映厅的在线客服全年无休，工作时间为每天09:00-24:00，用户可以随时联系在线客服，解决任何疑问。同时，我们也建议大家在拿到完成充值的ChatGPT Plus账号后，及时修改账号密码，以最大程度保护你的账号安全。
 
+<p align="center"><a href="https://www.naifeistation.com/i/3wLPME">立即访问星际放映厅官网</a></p>
+
+****
+
 ## 2025年国内ChatGPT Plus代充值平台替补：<a href="https://universalbus.cn/?s=ofZoHZpnhr">环球巴士</a>
 
 环球巴士（UniversalBus）成立于2019年7月，前身为“奈飞站”（NetflixStation），是一家专注于流媒体账号合租和AI工具服务的综合平台。经过2023年2月的重大改版，环球巴士的服务范围从最初的奈飞合租扩展到近20种服务，用户规模突破10万。
@@ -127,6 +133,10 @@
 ![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-17.png)
 
 注意：当你完成付款之后，你也需要联系在线客服，把你的ChatGPT账号和密码发给客服，然后等待在线客服帮你完成ChatGPT Plus代充值。同样的道理，当你完成ChatGPT Plus代充值之后，请及时修改你的账号密码，以最大程度保护账号安全。
+
+<p align="center"><a href="https://universalbus.cn/?s=ofZoHZpnhr">立即访问环球巴士官网</a></p>
+
+****
 
 ## 如何选择可靠的ChatGPT Plus代充值平台？
 
