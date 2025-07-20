@@ -1,4 +1,4 @@
-# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！
+# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！可直接购买ChatGPT Plus原生独立帐号或为你的Claude帐号代充值！
 
 <p align="center">最近更新于：2025年7月20日</p>
 
