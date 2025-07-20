@@ -130,7 +130,7 @@
 
 ### 第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮。
 
-![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-17.png)
+![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-17-1.png)
 
 注意：当你完成付款之后，你也需要联系在线客服，把你的ChatGPT账号和密码发给客服，然后等待在线客服帮你完成ChatGPT Plus代充值。同样的道理，当你完成ChatGPT Plus代充值之后，请及时修改你的账号密码，以最大程度保护账号安全。
 
