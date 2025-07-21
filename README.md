@@ -26,13 +26,13 @@
 
 ### 第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”。
 
-![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3.png)
+![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3-1.png)
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
 注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“半年”或“1年”套餐，这样平均下来每月只需150元左右**（OpenAI官方ChatGPT Plus订阅价格为20美金，折合人民币大约150元），**整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
 
-![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4.png)
+![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-1.png)
 
 ### 第五步：输入优惠码“anyofai”，然后点击“确认”。
 
@@ -50,7 +50,7 @@
 
 ![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7.png)
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-1.png)
 
 写在最后，购买银河录像局“独立会员”服务的操作流程和前面“ChatGPT Plus代充值”的流程是一样的。我们也建议大家在拿到ChatGPT Plus账号后及时修改密码，这样可以最大程度保护你的账号安全。
 
