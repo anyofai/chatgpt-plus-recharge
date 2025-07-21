@@ -36,8 +36,6 @@
 
 ### 第五步：输入优惠码“anyofai”，然后点击“确认”。
 
-![通过银河录像局给ChatGPT Plus代充值第五步：输入优惠码“anyofai”，然后点击“确认”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-5.png)
-
 <div align="center">
 <img src="https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-5.png" alt="通过银河录像局给ChatGPT Plus代充值第五步：输入优惠码“anyofai”，然后点击“确认”">
 </div>
