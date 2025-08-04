@@ -58,8 +58,6 @@
 
 <p align="center"><a href="https://nf.video/BTgSc">立即访问银河录像局官网</a></p>
 
-如果大家在通过银河录像局进行ChatGPT Plus代充值时遇到问题，或者有不清楚的地方，可以第一时间联系银河录像局的在线客服进行咨询，也可以添加我们的VX（VX号：ANYOFAI）进行咨询。
-
 ****
 
 ## 2025年国内ChatGPT Plus代充值平台备选：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅</a>
