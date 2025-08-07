@@ -26,13 +26,13 @@
 
 ### 第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”。
 
-![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3-1.png)
+![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3-2.png)
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
 注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐（**现在参与平台活动并使用优惠码“ANYOFAI”后，每月仅需152元**）；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“1年”套餐，这样平均下来每月也只需133元**（OpenAI官方ChatGPT Plus订阅价格为20美金，折合人民币大约145元），**整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
 
-![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-1.png)
+![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-2.png)
 
 ### 第五步：输入优惠码“anyofai”，然后点击“确认”。
 
@@ -42,7 +42,7 @@
 
 ### 第六步：核对套餐信息，确认无误后点击“支付宝支付”。
 
-![通过银河录像局给ChatGPT Plus代充值第六步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6.png)
+![通过银河录像局给ChatGPT Plus代充值第六步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6-1.png)
 
 值得注意的是：当你完成支付后，点击银河录像局官网导航栏中的"车票"按钮，即可找到**ChatGPT自主充值**入口。ChatGPT自主充值流程简单，仅需五分钟即可完成，而且**不用透露用户的ChatGPT帐号和密码**，可以最大程度地保护用户的隐私安全！
 
