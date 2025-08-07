@@ -1,6 +1,6 @@
-# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！你可以直接购买原生ChatGPT Plus独立帐号，也可为现有的ChatGPT帐号代充值（152元/月）！
+# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！你可以直接购买原生ChatGPT Plus独立帐号，也可为现有的ChatGPT帐号代充值（133元/月）！
 
-<p align="center">最近更新于：2025年8月4日</p>
+<p align="center">最近更新于：2025年8月7日</p>
 
 ![最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
@@ -30,7 +30,7 @@
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
-注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐（**现在参与平台活动并使用优惠码“ANYOFAI”后，每月仅需152元**）；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“半年”或“1年”套餐，这样平均下来每月也只需150元**（OpenAI官方ChatGPT Plus订阅价格为20美金，折合人民币大约150元），**整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
+注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐（**现在参与平台活动并使用优惠码“ANYOFAI”后，每月仅需152元**）；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“1年”套餐，这样平均下来每月也只需133元**（OpenAI官方ChatGPT Plus订阅价格为20美金，折合人民币大约145元），**整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
 
 ![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-1.png)
 
