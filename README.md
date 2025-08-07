@@ -34,15 +34,9 @@
 
 ![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-2.png)
 
-### 第五步：输入优惠码“anyofai”，然后点击“确认”。
+### 第五步：核对套餐信息，确认无误后点击“支付宝支付”。
 
-<div align="center">
-<img src="https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-5.png" alt="通过银河录像局给ChatGPT Plus代充值第五步：输入优惠码“anyofai”，然后点击“确认”">
-</div>
-
-### 第六步：核对套餐信息，确认无误后点击“支付宝支付”。
-
-![通过银河录像局给ChatGPT Plus代充值第六步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6-1.png)
+![通过银河录像局给ChatGPT Plus代充值第五步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6-1.png)
 
 值得注意的是：当你完成支付后，点击银河录像局官网导航栏中的"车票"按钮，即可找到**ChatGPT自主充值**入口。ChatGPT自主充值流程简单，仅需五分钟即可完成，而且**不用透露用户的ChatGPT帐号和密码**，可以最大程度地保护用户的隐私安全！
 
