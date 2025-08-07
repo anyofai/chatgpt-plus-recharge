@@ -46,7 +46,7 @@
 
 ![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7.png)
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-1.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-2.png)
 
 小提示：通过银河录像局购买ChatGPT Plus原生独立帐号的操作流程和前面ChatGPT Plus代充值的流程一样！唯一不同的是，当你完成付款之后，需要联系银河录像局在线客服获取ChatGPT Plus帐号和密码！我们建议大家在拿到ChatGPT Plus账号后及时修改密码，这样可以最大程度保护账号安全。
 
