@@ -24,29 +24,29 @@
 
 ![通过银河录像局给ChatGPT Plus代充值第二步：使用手机号码登录，或通过微信扫码登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-2.png)
 
-### 第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”。
+### 第三步：在银河录像局首页点击“AI服务”，然后选择“ChatGPT Plus代充”。
 
-![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“代充”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3-2.png)
+![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“AI服务”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-3-3.png)
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
-注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐（**现在参与平台活动并使用优惠码“ANYOFAI”后，每月仅需152元**）；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“1年”套餐，这样平均下来每月也只需133元**（OpenAI官方ChatGPT Plus订阅价格为20美金，折合人民币大约145元），**整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
+注意：如果你只是短期内使用一下ChatGPT Plus会员，那么可以选择“1个月”套餐（**现在使用银河录像局优惠码“ANYOFAI”后，每月仅需180元**）；**如果你需要长期使用ChatGPT Plus会员，我们建议你选择“1年”套餐，这样平均下来每月也只需166元，整体性价比非常高**。而且你完全不用担心一次性购买较长时间套餐的安全问题，一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号问题，银河录像局会免费为你提供全新的ChatGPT Plus会员账号**，大家可以放心选择！
 
-![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-2.png)
+![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-4-3.png)
 
 ### 第五步：核对套餐信息，确认无误后点击“支付宝支付”。
 
-![通过银河录像局给ChatGPT Plus代充值第五步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6-1.png)
+![通过银河录像局给ChatGPT Plus代充值第五步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-6-2.png)
 
 值得注意的是：当你完成支付后，点击银河录像局官网导航栏中的"车票"按钮，即可找到**ChatGPT自助充值**入口。ChatGPT自主充值流程简单，仅需五分钟即可完成，而且**不用透露用户的ChatGPT帐号和密码**，可以最大程度地保护用户的隐私安全！
 
-**重要提示**：如果你还没有ChatGPT账号，也可以在银河录像局官网首页点击“AI服务”，选择“GPT Plus”选项，直接购买“独立会员”套餐。这样，**银河录像局会直接为你提供一个已经完成订阅充值的ChatGPT Plus账号（参与活动并用优惠码“ANYOFAI”后每月仅152元），拿到手就可以直接使用，非常方便**。
+**重要提示**：如果你还没有ChatGPT账号，也可以在银河录像局官网首页点击“AI服务”，选择“GPT Plus”选项，直接购买“独立会员”套餐。这样，**银河录像局会直接为你提供一个已经完成订阅充值的ChatGPT Plus账号（使用优惠码“ANYOFAI”后每月仅171元），拿到手就可以直接使用，非常方便**。
 
 注意：如果你购买“独立会员”服务的话，我们同样**建议选择“Plus年付”套餐，该套餐性价比最高**！
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7-1.png)
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-2.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-3.png)
 
 小提示：通过银河录像局购买ChatGPT Plus原生独立帐号的操作流程和前面ChatGPT Plus代充值的流程一样！唯一不同的是，当你完成付款之后，需要联系银河录像局在线客服获取ChatGPT Plus帐号和密码！我们建议大家在拿到ChatGPT Plus账号后及时修改密码，这样可以最大程度保护账号安全。
 
@@ -56,7 +56,7 @@
 
 ## 2025年国内ChatGPT Plus代充值平台备选：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅</a>
 
-星际放映厅也是一家专注于流媒体与AI账号合租的平台，该平台也已获得正规ICP备案（浙ICP备2023017856号），并由专业团队运营，可以为用户提供安全可靠的流媒体和AI工具合租服务。星际放映厅虽然主打Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，但同时也提供<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>、ChatGPT Plus代充值、<a href="https://github.com/anyofai/x-twitter">SuperGrok合租和代充值</a>、<a href="https://github.com/anyofai/midjourney-hezu">Midjourney合租</a>、Midjourney代充值、Poe代充值等服务。也就是说，无论你是想追剧、看美剧、听音乐，还是需要AI写作与绘画，用户都能在这里找到合适的方案。
+星际放映厅也是一家专注于流媒体与AI账号合租的平台，该平台也已获得正规ICP备案（浙ICP备2023017856号），并由专业团队运营，可以为用户提供安全可靠的流媒体和AI工具合租服务。星际放映厅虽然主打Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，但同时也提供ChatGPT Plus合租、ChatGPT Plus代充值、SuperGrok合租/代充值、Midjourney合租、Midjourney代充值、Poe代充值等服务。也就是说，无论你是想追剧、看美剧、听音乐，还是需要AI写作与绘画，用户都能在这里找到合适的方案。
 
 星际放映厅主打“现号秒发”“安全稳定”“物美价廉”“专业服务”，而且平台承诺99.9%的高稳定性，全年7×24小时客服在线，遇到任何账号或服务问题都能快速响应。
 
@@ -95,6 +95,8 @@
 注意：星际放映厅通常会在3小时内帮助用户完成ChatGPT Plus代充值。此外，星际放映厅的在线客服全年无休，工作时间为每天09:00-24:00，用户可以随时联系在线客服，解决任何疑问。同时，我们也建议大家在拿到完成充值的ChatGPT Plus账号后，及时修改账号密码，以最大程度保护你的账号安全。
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">立即访问星际放映厅官网</a></p>
+
+小提示：如果你想了解其他AI工具的合租和代充值服务，请查阅：<a href="https://github.com/anyofai/anyofai.github.io">购买ChatGPT Plus账号</a>、<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>、<a href="https://github.com/anyofai/chatgpt-plus-recharge">ChatGPT Plus代充值</a>、<a href="https://github.com/anyofai/x-twitter">SuperGrok合租/代充值</a>、<a href="https://github.com/anyofai/midjourney-hezu">Midjourney合租</a>、<a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>、<a href="https://github.com/anyofai/poe">Poe订阅</a>。
 
 ****
 
