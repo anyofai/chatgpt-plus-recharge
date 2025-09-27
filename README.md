@@ -44,7 +44,7 @@
 
 **重要提示**：如果你还没有ChatGPT账号，也可以在银河录像局官网首页点击“AI服务”，选择“GPT Plus”选项，直接购买“独立会员”套餐。这样，**银河录像局会直接为你提供一个已经完成订阅充值的ChatGPT Plus账号（现在使用优惠码“ANYOFAI”后每月仅171元），拿到手就可以直接使用，非常方便**。
 
-注意：如果你购买“独立会员”服务，我们同样建议选择“**Plus年付**”套餐，使用优惠码“ANYOFAI”即可享受九折优惠，**每月仅需158元**，性价比极高！
+注意：**如果你购买“独立会员”服务，我们同样建议选择“Plus年付”套餐，每月仅需158元，性价比极高！**
 
 ![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7-1.png)
 
