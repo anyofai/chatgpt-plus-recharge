@@ -1,10 +1,10 @@
-# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！你可以直接购买原生ChatGPT Plus独立帐号，也可为现有的ChatGPT帐号代充值！
+# 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！你可以直接购买原生ChatGPT Plus独立账号，也可为现有的ChatGPT账号代充值！
 
-<p align="center">最近更新于：2025年10月21日</p>
+<p align="center">最近更新于：2025年11月14日</p>
 
 ![最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
-由于WildCard野卡被迫停止服务了，而市面上暂时还没有出现可以与WildCard野卡相媲美的虚拟信用卡。所以，目前国内用户如果还想继续使用ChatGPT Plus会员的话，最靠谱的办法其实就是“合租ChatGPT Plus”或者“ChatGPT Plus代充值”或者“购买ChatGPT Plus原生独立帐号”。
+由于WildCard野卡被迫停止服务了，而市面上暂时还没有出现可以与WildCard野卡相媲美的虚拟信用卡。所以，目前国内用户如果还想继续使用ChatGPT Plus会员的话，最靠谱的办法其实就是“合租ChatGPT Plus”或者“ChatGPT Plus代充值”或者“购买ChatGPT Plus原生独立账号”。
 
 现在市面上的ChatGPT Plus代充值服务其实也不少，但我们想提醒大家，在选择ChatGPT Plus代充值平台时，一定要睁大眼睛，千万不要为了贪图便宜而选择那些由个人提供的ChatGPT Plus代充服务。我并不是说所有个人提供的ChatGPT Plus代充值服务都不好，但在安全性、稳定性、服务体验等方面，肯定没办法与正规大平台相提并论。
 
@@ -46,11 +46,11 @@
 
 注意：**如果你购买“独立会员”服务，我们同样建议选择“Plus年付”套餐，每月仅需158元，性价比极高！**
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7-1.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立账号](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-7-1.png)
 
-![你也可以通过银河录像局直接购买ChatGPT Plus原生独立帐号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-4.png)
+![你也可以通过银河录像局直接购买ChatGPT Plus原生独立账号，并选择“Plus年付”套餐](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-8-4.png)
 
-小提示：通过银河录像局购买ChatGPT Plus原生独立帐号的操作流程和前面ChatGPT Plus代充值的流程一样！唯一不同的是，当你完成付款之后，需要联系银河录像局在线客服获取ChatGPT Plus帐号和密码！我们建议大家在拿到ChatGPT Plus账号后及时修改密码，这样可以最大程度保护账号安全。
+小提示：通过银河录像局购买ChatGPT Plus原生独立账号的操作流程和前面ChatGPT Plus代充值的流程一样！唯一不同的是，当你完成付款之后，需要联系银河录像局在线客服获取ChatGPT Plus账号和密码！我们建议大家在拿到ChatGPT Plus账号后及时修改密码，这样可以最大程度保护账号安全。
 
 <p align="center"><a href="https://nf.video/BTgSc">立即访问银河录像局官网</a></p>
 
@@ -86,9 +86,9 @@
 
 ![通过星际放映厅代充值ChatGPT Plus会员第五步：使用支付宝扫码完成支付](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--5.jpg)
 
-### 第六步：输入你的ChatGPT帐号和密码，并点击“提交信息”。
+### 第六步：输入你的ChatGPT账号和密码，并点击“提交信息”。
 
-![通过星际放映厅代充值ChatGPT Plus会员第六步：输入你的ChatGPT帐号和密码，并点击“提交信息”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--6.jpg)
+![通过星际放映厅代充值ChatGPT Plus会员第六步：输入你的ChatGPT账号和密码，并点击“提交信息”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--6.jpg)
 
 ### 第七步：查收来自星际放映厅的激活短信。
 
@@ -174,14 +174,14 @@
 
 ## 国内ChatGPT Plus代充值相关的其他文章：
 
-* <a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus开通</a>：如何购买/合租/代充ChatGPT Plus会员？国内如何使用GPT-5-Codex？
-* <a href="https://github.com/anyofai/claude-pro">Claude Pro订阅</a>：如何注册Claude账号？如何购买/合租/代充Claude Pro会员？如何使用Claude Code？
-* <a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>：如何购买Midjourney原生独立帐号？如何代充Midjourney会员？
-* <a href="https://github.com/anyofai/poe">Poe订阅</a>：如何购买Poe原生独立账号？支持GPT-5、Claude Opus/Sonnet 4、Grok-4、Gemini-2.5 Pro等大模型！
-* <a href="https://github.com/anyofai/x-twitter">SuperGrok订阅</a>：如何合租SuperGrok会员？如何购买SuperGrok帐号？如何代充SuperGrok会员？
+* <a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus购买</a>：如何购买/合租/代充ChatGPT Plus会员？如何购买Codex拼车服务？
+* <a href="https://github.com/anyofai/claude-pro">Claude Pro订阅</a>：如何注册Claude账号？如何购买/合租/代充Claude Pro会员？含Claude Code国内使用教程！
+* <a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>：如何购买Midjourney原生独立账号？如何代充Midjourney会员？
+* <a href="https://github.com/anyofai/poe">Poe订阅</a>：Poe会员支持GPT-5.1、Claude 4.5 Sonnet、Grok-4、Gemini-2.5 Pro等大模型！
+* <a href="https://github.com/anyofai/x-twitter">SuperGrok订阅</a>：如何合租SuperGrok会员？如何购买SuperGrok账号？如何代充SuperGrok会员？
 
-* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>：支持ChatGPT-5、DeepSeek-R1、Grok-4和Gemini-2.5 Pro等大模型！每月仅需27元！
-* <a href="https://github.com/anyofai/claude-pro-hezu">Claude Pro合租</a>：无需科学上网，镜像直连，会话隔离，保障隐私安全，无账号被封风险！每月仅需8元！
+* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>：支持ChatGPT-5.1、DeepSeek-R1、Grok-4和Gemini-2.5 Pro等大模型！每月仅需27元！
+* <a href="https://github.com/anyofai/claude-pro-hezu">Claude Pro合租</a>：无需科学上网，镜像直连，会话隔离，保障隐私安全，无账号被封风险！价格低至14元起！
 * <a href="https://github.com/anyofai/midjourney-hezu">Midjourney合租</a>：提供国内镜像直连、官方标准会员合租、官方Pro会员合租等三种服务！每月仅需27元！
 * <a href="https://github.com/anyofai/netflix-hezu">Netflix奈飞合租</a>：提供独立子账号、支持设置pin码，可访问Netflix全球影视资源，全程质保，价格低至8元起！
 * <a href="https://github.com/anyofai/youtube-hezu">YouTube合租</a>：安全有保障，可享受YouTube Premium会员所有权益！每月仅需15元！
