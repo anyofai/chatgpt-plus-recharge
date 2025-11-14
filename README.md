@@ -120,15 +120,15 @@
 
 ### 第三步：点击官网右侧的“AIGC”，选择“ChatGPT Plus充值”，并点击“购票上车”按钮。
 
-![通过环球巴士代充值ChatGPT Plus会员第三步：点击官网右侧的“AIGC”，选择“ChatGPT Plus充值”，并点击“购票上车”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-15.png)
+![通过环球巴士代充值ChatGPT Plus会员第三步：点击官网右侧的“AIGC”，选择“ChatGPT Plus充值”，并点击“购票上车”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-8.png)
 
-### 第四步：选择“时长”和“分类”，然后点击“立即购买”按钮。
+### 第四步：选择“时长”，然后点击“立即购买”按钮。
 
-![通过环球巴士代充值ChatGPT Plus会员第四步：选择“时长”和“分类”，然后点击“立即购买”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-16.png)
+![通过环球巴士代充值ChatGPT Plus会员第四步：选择“时长”和“分类”，然后点击“立即购买”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-9.png)
 
 ### 第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮。
 
-![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-17-1.png)
+![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-10.png)
 
 注意：当你完成付款之后，你也需要联系在线客服，把你的ChatGPT账号和密码发给客服，然后等待在线客服帮你完成ChatGPT Plus代充值。同样的道理，当你完成ChatGPT Plus代充值之后，请及时修改你的账号密码，以最大程度保护账号安全。
 
