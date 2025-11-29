@@ -1,6 +1,6 @@
 # 最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！你可以直接购买原生ChatGPT Plus独立账号，也可为现有的ChatGPT账号代充值！
 
-<p align="center">最近更新于：2025年11月26日</p>
+<p align="center">最近更新于：2025年11月29日</p>
 
 ![最新ChatGPT Plus代充值教程：2025年最可靠的ChatGPT Plus代充值平台推荐！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
