@@ -24,9 +24,9 @@
 
 ![通过银河录像局给ChatGPT Plus代充值第二步：使用手机号码登录，或通过微信扫码登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-2.png)
 
-### 第三步：在银河录像局首页点击“AI服务”，然后选择“ChatGPT Plus代充”。
+### 第三步：在银河录像局首页点击“增值”，然后选择“Plus代充”。
 
-![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“AI服务”，然后选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-3.png)
+![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“增值”，然后选择“Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-3-1.png)
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
