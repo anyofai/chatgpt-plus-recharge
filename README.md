@@ -82,19 +82,7 @@
 
 ![通过星际放映厅代充值ChatGPT Plus会员第四步：选择“时长”并输入优惠码“ANYOFAI”，然后点击“支付订单”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-12-1.png)
 
-### 第五步：使用支付宝扫码完成支付。
-
-![通过星际放映厅代充值ChatGPT Plus会员第五步：使用支付宝扫码完成支付](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--5.jpg)
-
-### 第六步：输入你的ChatGPT账号和密码，并点击“提交信息”。
-
-![通过星际放映厅代充值ChatGPT Plus会员第六步：输入你的ChatGPT账号和密码，并点击“提交信息”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--6.jpg)
-
-### 第七步：查收来自星际放映厅的激活短信。
-
-![通过星际放映厅代充值ChatGPT Plus会员第七步：查收来自星际放映厅的激活短信](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge--7.jpg)
-
-注意：星际放映厅通常会在3小时内帮助用户完成ChatGPT Plus代充值。此外，星际放映厅的在线客服全年无休，工作时间为每天09:00-24:00，用户可以随时联系在线客服，解决任何疑问。同时，我们也建议大家在拿到完成充值的ChatGPT Plus账号后，及时修改账号密码，以最大程度保护你的账号安全。
+注意：星际放映厅的ChatGPT Plus代充值服务目前仅支持人工代充值。也就是说，当你完成支付后，需要主动联系在线客服，并提供你的ChatGPT账号和密码，然后由客服人员协助完成ChatGPT Plus充值。需要说明的是，星际放映厅是国内较为权威的平台，在用户隐私和账号安全方面有较为完善的保障，因此无需担心隐私泄露问题。此外，星际放映厅的在线客服全年无休，服务时间为每天09:00–24:00，用户可在此时间段内随时联系客服，解决相关疑问。
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">立即访问星际放映厅官网</a></p>
 
