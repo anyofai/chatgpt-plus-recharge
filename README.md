@@ -90,35 +90,25 @@
 
 ****
 
-## 2026年国内ChatGPT Plus代充值平台三：<a href="https://universalbus.cn/?s=ofZoHZpnhr">环球巴士</a>
+## 2026年国内ChatGPT Plus代充值平台三：<a href="https://accboyytbanyofai.acceboy.com/">账号星球</a>
 
-环球巴士（UniversalBus）成立于2019年7月，前身为“奈飞站”（NetflixStation），是一家专注于流媒体账号合租和AI工具服务的综合平台。经过2023年2月的重大改版，环球巴士的服务范围从最初的奈飞合租扩展到近20种服务，用户规模突破10万。
+账号星球成立于2019年，也是一家已成功运营了六年多的综合型数字产品服务平台。该平台整体定位偏向“账号类电商”，商品覆盖面广、更新频率高。账号星球更强调标准化下单流程、明确标价以及客服介入式交付，整体风格接近成熟的虚拟商品交易站点，而非临时拼凑的小平台。
 
-环球巴士的业务范围也非常广泛，包括Netflix、Disney+、Spotify、YouTube、Prime Video、HBO GO、Hulu等流媒体合租服务，以及ChatGPT Plus合租、Midjourney合租、Claude Pro代充值等服务。
+在ChatGPT Plus代充值业务方面，账号星球目前提供三种套餐，其中30天套餐价格为198元、90天套餐价格为580元、365天套餐价格为2320元。需要注意的是，账号星球采用的是人工代充模式。也就是说，用户在下单并完成付款后，需要联系在线客服，按客服要求提供必要的账号信息，由客服协助完成ChatGPT Plus充值。这种“直接下单+客服代充”的方式，对于已经有ChatGPT账号、但不想自行处理支付方式的用户来说更加省事。
 
-### 第一步：访问环球巴士官网，并点击右上角的小头像。
+除了AI工具相关的服务之外，账号星球还提供多种其他数字服务，覆盖社交与邮箱账号类（如Telegram账号、TikTok账号、Facebook账号、推特账号、谷歌Gmail邮箱等），以及影音会员与工具类商品（如Netflix会员账号、Disney+会员账号、YouTube账号、Windows正版系统激活码、Steam全球号、Ins账号、Discord账号等），大家可根据自身需求进行选择。
 
-* 环球巴士官网：<a href="https://universalbus.cn/?s=ofZoHZpnhr">https://universalbus.cn/?s=ofZoHZpnhr</a>
+<p align="center"><a href="https://accboyytbanyofai.acceboy.com/">立即访问账号星球官网</a></p>
 
-![通过环球巴士代充值ChatGPT Plus会员第一步：访问环球巴士官网，并点击右上角的小头像](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-13.png)
+****
 
-### 第二步：使用手机号码完成登录。
+## 2026年国内ChatGPT Plus代充值平台四：<a href="https://universalbus.cn/?s=ofZoHZpnhr">环球巴士</a>
 
-![通过环球巴士代充值ChatGPT Plus会员第二步：使用手机号码完成登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-14.png)
+环球巴士（UniversalBus）成立于2019年7月，前身为“奈飞站（NetflixStation）”，最初以Netflix等流媒体账号合租服务起家，是国内较早一批专注于账号合租的平台之一。2023年2月，环球巴士完成了一次较大规模的产品与系统改版，平台业务从单一的奈飞合租逐步扩展至流媒体与AI工具并行的发展方向，目前覆盖的服务种类接近20项，累计用户规模已突破10万人，在同类平台中具备一定的知名度和较为稳定的用户基础。
 
-### 第三步：点击官网右侧的“AIGC”，选择“ChatGPT Plus充值”，并点击“购票上车”按钮。
+在ChatGPT相关服务方面，环球巴士提供ChatGPT基础账号、ChatGPT Plus镜像服务、ChatGPT Plus合租以及ChatGPT Plus代充值等多种形式。其中，ChatGPT Plus代充值服务目前提供两种价格套餐：1个月套餐价格为238.88元，支持自助充值和人工充值两种模式；3个月套餐价格为598元，仅支持人工充值。需要注意的是，如果你选择的是人工代充值方式，那么在完成付款后需主动联系在线客服，并按要求提供ChatGPT账号及密码，由客服人员协助完成ChatGPT Plus充值。
 
-![通过环球巴士代充值ChatGPT Plus会员第三步：点击官网右侧的“AIGC”，选择“ChatGPT Plus充值”，并点击“购票上车”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-8.png)
-
-### 第四步：选择“时长”，然后点击“立即购买”按钮。
-
-![通过环球巴士代充值ChatGPT Plus会员第四步：选择“时长”和“分类”，然后点击“立即购买”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-9.png)
-
-### 第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮。
-
-![通过环球巴士代充值ChatGPT Plus会员第五步：输入优惠码“ANYOFAI”，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-10.png)
-
-注意：当你完成付款之后，你也需要联系在线客服，把你的ChatGPT账号和密码发给客服，然后等待在线客服帮你完成ChatGPT Plus代充值。同样的道理，当你完成ChatGPT Plus代充值之后，请及时修改你的账号密码，以最大程度保护账号安全。
+除了ChatGPT相关服务之外，环球巴士还提供多种AI工具和流媒体会员的合租服务，包括Gemini、Grok、Claude、Midjourney、POE等AI产品，以及Netflix、Disney+、Spotify、YouTube、Prime Video、HBO GO、Hulu等流媒体会员。整体来看，环球巴士在服务类型上覆盖较为全面，能够满足同时存在AI工具与流媒体账号需求的使用场景。
 
 <p align="center"><a href="https://universalbus.cn/?s=ofZoHZpnhr">立即访问环球巴士官网</a></p>
 
