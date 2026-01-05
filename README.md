@@ -86,7 +86,7 @@
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">立即访问星际放映厅官网</a></p>
 
-小提示：如果你想了解其他AI工具的合租和代充值服务，请查阅：<a href="https://github.com/anyofai/anyofai.github.io">购买ChatGPT Plus账号</a>、<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>、<a href="https://github.com/anyofai/chatgpt-plus-recharge">ChatGPT Plus代充值</a>、<a href="https://github.com/anyofai/x-twitter">SuperGrok合租</a>、<a href="https://github.com/anyofai/x-twitter">SuperGrok代充值</a>、<a href="https://github.com/anyofai/midjourney-hezu">Midjourney合租</a>、<a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>、<a href="https://github.com/anyofai/poe">Poe订阅</a>。
+小提示：如果你想了解其他AI工具的合租和代充值服务，请查阅：<a href="https://github.com/anyofai/anyofai.github.io">购买ChatGPT Plus账号</a>、<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>、<a href="https://github.com/anyofai/x-twitter">SuperGrok拼车合租/账号购买/代充值</a>、<a href="https://github.com/anyofai/gemini-pro">Gemini Pro成品账号/代充值</a>、<a href="https://github.com/anyofai/poe">Poe订阅</a>。
 
 ****
 
