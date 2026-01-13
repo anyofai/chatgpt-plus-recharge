@@ -28,7 +28,7 @@
 
 ### 第三步：点击“AI工具箱”并选择“ChatGPT Plus代充”。
 
-![通过星际放映厅代充值ChatGPT Plus会员第三步：点击“AI工具箱”并选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%20Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-11.png)
+![通过星际放映厅代充值ChatGPT Plus会员第三步：点击“AI工具箱”并选择“ChatGPT Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-11-1.png)
 
 ### 第四步：选择“时长”并输入优惠码“ANYOFAI”，然后按照系统提示完成支付。
 
