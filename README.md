@@ -36,7 +36,7 @@
 
 重要提示：无论你最终选择哪种套餐，**星际放映厅均提供全程质保**，使用过程中如遇到任何问题，都可以联系在线客服免费解决，有平台兜底，大家可以放心选购。
 
-![通过星际放映厅代充值ChatGPT Plus会员第四步：选择“时长”并输入优惠码“ANYOFAI”，然后点击“支付订单”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT%2520Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-12-1.png)
+![通过星际放映厅代充值ChatGPT Plus会员第四步：选择“时长”并输入优惠码“ANYOFAI”，然后点击“支付订单”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-12-2.png)
 
 注意：星际放映厅的ChatGPT Plus代充值服务目前仅支持人工代充值。也就是说，当你完成支付后，需要主动联系在线客服，并提供你的ChatGPT账号和密码，然后由客服人员协助完成ChatGPT Plus充值。需要说明的是，星际放映厅是国内较为权威的平台，在用户隐私和账号安全方面有较为完善的保障，因此无需担心隐私泄露问题。此外，星际放映厅的在线客服全年无休，服务时间为每天09:00–24:00，用户可在此时间段内随时联系客服，解决相关疑问。
 
