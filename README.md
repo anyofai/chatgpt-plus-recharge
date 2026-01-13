@@ -90,11 +90,9 @@
 
 ****
 
-## 2026年国内ChatGPT Plus代充值平台三：<a href="https://accboyytbanyofai.acceboy.com/">账号星球</a>
+## 2026年国内ChatGPT Plus代充值平台三：<a href="https://accboyytbanyofai.acceboy.com/zh-cn-cny/buy-chatai">账号星球</a>
 
 账号星球成立于2019年，也是一家已成功运营了六年多的综合型数字产品服务平台。该平台整体定位偏向“账号类电商”，商品覆盖面广、更新频率高。账号星球更强调标准化下单流程、明确标价以及客服介入式交付，整体风格接近成熟的虚拟商品交易站点，而非临时拼凑的小平台。
-
-![通过账号星球为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-1.png)
 
 在ChatGPT Plus代充值业务方面，账号星球目前提供三种套餐，其中30天套餐价格为198元、90天套餐价格为580元、365天套餐价格为2320元。需要注意的是，账号星球采用的是人工代充模式。也就是说，用户在下单并完成付款后，需要联系在线客服，按客服要求提供必要的账号信息，由客服协助完成ChatGPT Plus充值。这种“直接下单+客服代充”的方式，对于已经有ChatGPT账号、但不想自行处理支付方式的用户来说更加省事。
 
@@ -104,7 +102,7 @@
 
 ![通过账号星球为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-3.png)
 
-<p align="center"><a href="https://accboyytbanyofai.acceboy.com/">立即访问账号星球官网</a></p>
+<p align="center"><a href="https://accboyytbanyofai.acceboy.com/zh-cn-cny/buy-chatai">立即访问账号星球官网</a></p>
 
 ****
 
