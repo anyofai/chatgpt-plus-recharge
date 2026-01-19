@@ -52,15 +52,15 @@
 
 * 银河录像局官网：<a href="https://nf.video/BTgSc">https://nf.video/BTgSc</a>
 
-![通过银河录像局给ChatGPT Plus代充值第一步：访问银河录像局官网，并点击右上角的“登录/注册”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-1.png)
+![通过银河录像局给ChatGPT代充值第一步：访问银河录像局官网，并点击右上角的“登录/注册”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-1.png)
 
 ### 第二步：使用手机号码登录，或通过微信扫码登录。
 
-![通过银河录像局给ChatGPT Plus代充值第二步：使用手机号码登录，或通过微信扫码登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-2.png)
+![通过银河录像局给ChatGPT代充值第二步：使用手机号码登录，或通过微信扫码登录](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-2.png)
 
 ### 第三步：在银河录像局首页点击“增值”，然后选择“Plus代充”。
 
-![通过银河录像局给ChatGPT Plus代充值第三步：在银河录像局首页点击“增值”，然后选择“Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-3-1.png)
+![通过银河录像局给ChatGPT代充值第三步：在银河录像局首页点击“增值”，然后选择“Plus代充”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-3-1.png)
 
 ### 第四步：选择合适的套餐，并点击“支付宝支付”按钮。
 
@@ -68,11 +68,11 @@
 
 另外，关于一次性购买长期套餐的安全性，大家也可以完全放心。一方面银河录像局非常安全可靠，绝对不会有跑路风险；另一方面，**如果你在使用ChatGPT Plus账号的过程中遇到封号的问题，银河录像局会免费为你提供一个全新的ChatGPT Plus会员账号**，大家可以放心选择！
 
-![通过银河录像局给ChatGPT Plus代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-4.png)
+![通过银河录像局给ChatGPT代充值第四步：选择合适的套餐，并点击“支付宝支付”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-4.png)
 
 ### 第五步：核对套餐信息，确认无误后点击“支付宝支付”。
 
-![通过银河录像局给ChatGPT Plus代充值第五步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-5.png)
+![通过银河录像局给ChatGPT代充值第五步：核对套餐信息，确认无误后点击“支付宝支付”](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-ChatGPT-Plus-%E4%BB%A3%E5%85%85%E5%80%BC-5.png)
 
 **注意**：银河录像局提供的**ChatGPT Plus代充值服务是24小时自动化自助充值**的方式，**用户无需向平台透露自己的ChatGPT账号和密码**，这样可以最大程度保护隐私安全。而且ChatGPT Plus充值的整个流程非常简单，即使是完全没有经验的小白用户，也能在五分钟内完成充值。
 
@@ -96,11 +96,11 @@
 
 在ChatGPT Plus代充值业务方面，账号星球目前提供三种套餐，其中30天套餐价格为198元、90天套餐价格为580元、365天套餐价格为2320元。需要注意的是，账号星球采用的是人工代充模式。也就是说，用户在下单并完成付款后，需要联系在线客服，按客服要求提供必要的账号信息，由客服协助完成ChatGPT Plus充值。这种“直接下单+客服代充”的方式，对于已经有ChatGPT账号、但不想自行处理支付方式的用户来说更加省事。
 
-![通过账号星球为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-2.png)
+![通过账号星球为ChatGPT代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-2.png)
 
 除了AI工具相关的服务之外，账号星球还提供多种其他数字服务，覆盖社交与邮箱账号类（如Telegram账号、TikTok账号、Facebook账号、推特账号、谷歌Gmail邮箱等），以及影音会员与工具类商品（如Netflix会员账号、Disney+会员账号、YouTube账号、Windows正版系统激活码、Steam全球号、Ins账号、Discord账号等），大家可根据自身需求选择。
 
-![通过账号星球为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-3.png)
+![通过账号星球为ChatGPT代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E8%B4%A6%E5%8F%B7%E6%98%9F%E7%90%83-3.png)
 
 <p align="center"><a href="https://accboyytbanyofai.acceboy.com/zh-cn-cny/buy-chatai">立即访问账号星球官网</a></p>
 
@@ -112,11 +112,11 @@
 
 在ChatGPT相关服务方面，环球巴士提供ChatGPT基础账号、ChatGPT Plus镜像服务、ChatGPT Plus合租以及ChatGPT Plus代充值等多种形式。其中，ChatGPT Plus代充值服务目前提供两种价格套餐：1个月套餐价格为238.88元，支持自助充值和人工充值两种模式；3个月套餐价格为598元，仅支持人工充值。需要注意的是，如果你选择的是人工代充值方式，那么在完成付款后需主动联系在线客服，并按要求提供ChatGPT账号及密码，由客服人员协助完成ChatGPT Plus充值。
 
-![通过环球巴士为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-1-1.png)
+![通过环球巴士为ChatGPT代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-1-1.png)
 
 除了ChatGPT相关服务之外，环球巴士还提供多种AI工具和流媒体会员的合租服务，包括Gemini、Grok、Claude、Midjourney、POE等AI产品，以及Netflix、Disney+、Spotify、YouTube、Prime Video、HBO GO、Hulu等流媒体会员。整体来看，环球巴士在服务类型上覆盖较为全面，能够满足同时存在AI工具与流媒体账号需求的使用场景。
 
-![通过环球巴士为ChatGPT Plus代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-2-1.png)
+![通过环球巴士为ChatGPT代充值](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E7%8E%AF%E7%90%83%E5%B7%B4%E5%A3%AB-2-1.png)
 
 <p align="center"><a href="https://universalbus.cn/?s=ofZoHZpnhr">立即访问环球巴士官网</a></p>
 
