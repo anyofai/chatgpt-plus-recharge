@@ -1,4 +1,4 @@
-# 2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需148元，提供全程质保，支持开具正规发票！
+# <p align="center">2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需148元，提供全程质保，支持开具正规发票！</p>
 
 <p align="center">最近更新于：2026年2月11日</p>
 
