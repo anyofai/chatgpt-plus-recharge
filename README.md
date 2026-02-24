@@ -1,8 +1,8 @@
-# <p align="center">2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需148元，提供全程质保，支持开具正规发票！</p>
+# <p align="center">2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需121元，提供全程质保，支持开具正规发票！</p>
 
-<p align="center">最近更新于：2026年2月11日</p>
+<p align="center">最近更新于：2026年2月24日</p>
 
-![2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需148元，提供全程质保，支持开具正规发票！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
+![2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需121元，提供全程质保，支持开具正规发票！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
 由于WildCard野卡被迫停止服务了，而市面上暂时还没有出现可以与WildCard野卡相媲美的虚拟信用卡。所以，目前国内用户如果还想继续使用ChatGPT Plus会员的话，最靠谱的办法其实就是“拼车合租ChatGPT Plus会员”或者“为你现有的ChatGPT账号代充值”或者“购买ChatGPT Plus原生独立账号”。
 
@@ -10,7 +10,7 @@
 
 接下来，我们会为大家推荐四个经过合法备案、运营稳定、用户口碑良好的ChatGPT Plus代充值平台，大家可以根据自己的实际需求选择适合自己的平台。
 
-## 2026年最佳ChatGPT代充平台一：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅(148元/月)</a>
+## 2026年最佳ChatGPT代充平台一：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅(121元/月)</a>
 
 星际放映厅是一家专注于流媒体与AI工具的综合性平台，该平台已完成正规ICP备案（浙ICP备2023017856号），并由专业团队负责运营，可为用户提供安全可靠的流媒体和AI工具相关的服务。星际放映厅虽然主打Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，但同时也提供ChatGPT Plus拼车合租/账号购买/代充值，SuperGrok拼车合租/账号购买/代充值，Gemini Pro代充值/账号购买，Claude代充值/账号购买，Midjourney代充值/账号购买，以及Poe账号购买等多种服务。也就是说，无论你是想追剧、看美剧、听音乐，还是需要AI写作与绘画，都可以在这里找到合适的方案。
 
@@ -32,7 +32,7 @@
 
 ### 第四步：选择“时长”并输入优惠码“ANYOFAI”，然后按照系统提示完成支付。
 
-星际放映厅提供的ChatGPT Plus代充值服务共分为三种套餐，分别为“1个月”“3个月”和“12个月”。其中，1个月套餐原价为185元/月，使用优惠码“ANYOFAI”可享九折优惠，**折后每月仅需173元**；12个月套餐原价为158元/月，使用优惠码“ANYOFAI”同样可享九折优惠，**折后每月仅需148元**。我们建议大家直接选择“12个月”套餐，这样在未来一年内不仅可以省去每月续费的麻烦，而且整体性价比也最高。
+星际放映厅提供的ChatGPT Plus代充值服务共分为三种套餐，分别为“1个月”“3个月”和“12个月”。其中，1个月套餐原价为165元/月，使用优惠码“ANYOFAI”可享九折优惠，**折后每月仅需155元**；12个月套餐原价为129元/月，使用优惠码“ANYOFAI”同样可享九折优惠，**折后每月仅需121元**。我们建议大家直接选择“12个月”套餐，这样在未来一年内不仅可以省去每月续费的麻烦，而且整体性价比也最高。
 
 重要提示：无论你最终选择哪种套餐，**星际放映厅均提供全程质保**，使用过程中如遇到任何问题，都可以联系在线客服免费解决，有平台兜底，大家可以放心选购。
 
@@ -166,10 +166,10 @@
 * <a href="https://github.com/anyofai/claude-pro">Claude注册</a>：如何注册Claude账号？如何购买/合租/代充Claude Pro会员？含Claude Code国内使用教程！
 * <a href="https://github.com/anyofai/gemini-pro">Gemini学生优惠</a>：如何购买Gemini Pro账号？如何拼车合租Gemini Pro会员？如何为Gemini Pro代充值？
 * <a href="https://github.com/anyofai/x-twitter">SuperGrok订阅</a>：如何购买SuperGrok独立账号？如何合租SuperGrok账号？如何为SuperGrok代充？
-* <a href="https://github.com/anyofai/poe">Poe账号购买</a>：Poe会员支持GPT-5.2、Claude 4.5 Sonnet、Grok-4.1、Gemini-3 Pro等大模型！
+* <a href="https://github.com/anyofai/poe">Poe账号购买</a>：Poe会员支持GPT-5.2、Claude 4.5 Sonnet、Grok-4.1、Gemini-3.1 Pro等大模型！
 * <a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>：如何购买Midjourney原生独立账号？如何为Midjourney代充值？
 
-* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT合租</a>：支持ChatGPT-5.2、DeepSeek-R1、Grok-4.1和Gemini-3 Pro等大模型！每月仅需27元！
+* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT合租</a>：支持ChatGPT-5.2、DeepSeek-R1、Grok-4.1和Gemini-3.1 Pro等大模型！每月仅需27元！
 * <a href="https://github.com/anyofai/claude-pro-hezu">Claude Code拼车</a>：无需科学上网，镜像直连，会话隔离，保障隐私安全，无账号被封风险！价格低至14元起！
 * <a href="https://github.com/anyofai/netflix-hezu">Netflix奈飞合租</a>：提供独立子账号、支持设置pin码，可访问Netflix全球影视资源，全程质保，价格低至8元起！
 * <a href="https://github.com/anyofai/youtube-hezu">YouTube合租</a>：安全有保障，可享受YouTube Premium会员所有权益！每月仅需21元！
