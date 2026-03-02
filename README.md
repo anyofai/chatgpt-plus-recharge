@@ -1,6 +1,6 @@
 # <p align="center">2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需121元，提供全程质保，支持开具正规发票！</p>
 
-<p align="center">最近更新于：2026年2月26日</p>
+<p align="center">最近更新于：2026年3月2日</p>
 
 ![2026年最新ChatGPT Plus代充值教程：最可靠的ChatGPT Plus代充值平台推荐，每月仅需121元，提供全程质保，支持开具正规发票！](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/chatgpt-plus-recharge.png)
 
@@ -38,7 +38,7 @@
 
 ![通过星际放映厅代充值ChatGPT Plus会员第四步：选择“时长”并输入优惠码“ANYOFAI”，然后点击“支付订单”按钮](https://raw.githubusercontent.com/anyofai/chatgpt-plus-recharge/refs/heads/main/image/ChatGPT-Plus%E4%BB%A3%E5%85%85%E5%80%BC-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-12-3.png)
 
-**注意**：星际放映厅的ChatGPT Plus代充值服务通过授权Token（会话令牌）完成相关操作，**用户无需向平台提供自己的ChatGPT账号和密码**，整体更加安全可靠。此外，星际放映厅的在线客服全年无休，服务时间为每天09:00–24:00，后续无论你遇到什么问题，都可以在该时间段内联系在线客服帮忙解决。
+**注意**：星际放映厅采用**24小时自助充值**模式（只需几秒钟即可完成ChatGPT Plus充值），**用户无需向平台提供自己的ChatGPT账号和密码**，整体更加安全可靠。此外，星际放映厅的在线客服全年无休，服务时间为每天09:00–24:00，后续无论你遇到什么问题，都可以在该时间段内联系在线客服帮忙解决。
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">立即访问星际放映厅官网</a></p>
 
