@@ -12,7 +12,9 @@
 
 ## 2026年最佳ChatGPT代充平台一：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅(121元/月)</a>
 
-星际放映厅是一家专注于流媒体与AI工具的综合性平台，该平台已完成正规ICP备案（浙ICP备2023017856号），并由专业团队负责运营，可为用户提供安全可靠的流媒体和AI工具相关的服务。星际放映厅不仅提供Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，同时还提供ChatGPT Plus拼车合租/账号购买/代充值、SuperGrok拼车合租/账号购买/代充值、Gemini Pro代充值/账号购买、Claude代充值/账号购买、Midjourney代充值/账号购买，以及Poe账号购买等多种服务。也就是说，无论你是想追剧看片、听音乐，还是需要使用AI工具辅助写作与绘画，都可以在这里找到合适的方案。
+星际放映厅是一家专注于流媒体与AI工具的综合性平台，该平台已完成正规ICP备案（浙ICP备2023017856号），并由专业团队负责运营，可为用户提供安全可靠的流媒体和AI工具相关的服务。
+
+星际放映厅不仅提供Netflix、HBO Max、Disney+、Prime Video、YouTube Premium等流媒体合租服务，同时还提供ChatGPT Plus拼车合租/账号购买/代充值、SuperGrok拼车合租/账号购买/代充值、Gemini Pro代充值/账号购买、Claude代充值/账号购买、Midjourney代充值/账号购买，以及Poe账号购买等多种服务。
 
 星际放映厅提供**全年无休的真人在线客服**，所有服务也均提供**全程质保（即全程包售后）**，同时支持**开具正规发票**！
 
